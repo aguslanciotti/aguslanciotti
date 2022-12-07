@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aguslanciotti
+- 👀 I’m interested in helping YOU to find the job you're dreaming about
+- 🌱 I’m currently learning Copywriting for recruiters
+- 💞️ I’m looking to collaborate on any project where I can help finding tech talent
+- 📫 How to reach me: agustinalanciotti@gmail.com or https://www.linkedin.com/in/agustinalanciotti/
